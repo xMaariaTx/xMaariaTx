@@ -82,5 +82,4 @@ Próximamente se añadirán nuevos repositorios y mejoras.
 ✨ Si quieres descubrir mas puedes:
 - 📧 Contactarme: mariavegetta@gmail.com
 - 💼 Linkedin: https://www.linkedin.com/in/maria-baos-93a69838b/
-- 🎮 Redes Sociales: xMaariaTx
 
