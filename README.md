@@ -51,7 +51,7 @@ A medio y largo plazo, me gustaría continuar mi formación realizando un máste
 
 - Catalán – nativo  
 - Castellano – nativo  
-- Inglés – nivel B1–B2  
+- Inglés – nivel B1
 
 ---
 
